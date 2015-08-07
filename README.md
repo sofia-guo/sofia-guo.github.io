@@ -1,1 +1,0 @@
-# sofia-guo.github.io
